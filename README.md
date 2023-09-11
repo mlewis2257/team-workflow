@@ -2,4 +2,4 @@
 
 Hello Squad!
 
-Whaddup Teaaaam
+Im Soo excited to be in a Team with Yall!!
